@@ -1,1 +1,1 @@
-created for Semarchy dala platform Hands On
+created for Semarchy data platform Hands On
